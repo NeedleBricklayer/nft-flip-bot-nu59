@@ -1,4 +1,4 @@
-# 
+# updated nft flip bot | proxy-transactions + wash-trading-detection is the best nft flip bot, featuring proxy-transactions and wash-trading-detection. Fast, smart, and optimized
 
 
 
